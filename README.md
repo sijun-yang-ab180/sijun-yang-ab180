@@ -1,1 +1,1 @@
-GitHub: [sijun-yang](https://github.com/YangSiJun528)
+GitHub: [@YangSiJun528](https://github.com/YangSiJun528)
